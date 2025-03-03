@@ -16,7 +16,7 @@
 
 - 🤝  I'm looking for ausbildung in Germany ( Fachinformatiker )
 
-- ⚡  I am not addicted to coffee, it finds its way every morning
+- ⚡  I don't like coffee
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
