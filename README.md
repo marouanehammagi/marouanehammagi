@@ -14,8 +14,6 @@
 
 - 📫 How to reach me **hammagimarouane@gmail.com**
 
-- 🤝  I'm looking for ausbildung in Germany ( Fachinformatiker )
-
 - ⚡  I don't like coffee
 
 <h3 align="left">Connect with me:</h3>
